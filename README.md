@@ -1,0 +1,2 @@
+# wasti
+Pejuang rupiah
